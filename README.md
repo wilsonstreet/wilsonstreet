@@ -1,1 +1,2 @@
-![tincan hallucinators logo](https://github.com/user-attachments/assets/f6fc3ad8-29b5-4b79-abb2-a135ce6d5a07)
+![holy fucking shit](https://github.com/user-attachments/assets/a32659b9-2eee-483a-9e15-b320be273a0b)
+yuh
